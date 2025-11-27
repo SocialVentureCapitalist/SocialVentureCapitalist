@@ -10,7 +10,7 @@ In the modern brokerage industry, the one who survives is not the broker with th
 
 ## Client Reviews: Trust Earned by Action
 
-Reviews of Social Venture Capitalist on specialized online platforms and investor forums, such as **[HackMD](https://hackmd.io/65sHk98yTk-POtmwqaSxbg), [IMDB](https://www.imdb.com/list/ls4156628138), Medium**, confirm that the British investment broker truly fulfills its promises. Commenters note that with each passing year, trading with it becomes more and more comfortable.
+Reviews of Social Venture Capitalist on specialized online platforms and investor forums, such as **[HackMD](https://hackmd.io/65sHk98yTk-POtmwqaSxbg), [IMDB](https://www.imdb.com/list/ls4156628138), [Medium](https://medium.com/@baqujuhupu987/social-venture-capitalist-reviews-does-the-broker-pay-or-not-4e36efe1bfe1?postPublishedType=initial)**, confirm that the British investment broker truly fulfills its promises. Commenters note that with each passing year, trading with it becomes more and more comfortable.
 
 Traders highly rate:
 
